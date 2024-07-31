@@ -15,15 +15,4 @@
 ![](https://i.pinimg.com/originals/39/a2/7b/39a27b3d61f99eb79278d9b2ee38fbc5.gif)
 
 
-
-Ding dong
-
-Quem badala assim tão bem?
-
-A namorada do Homem-de-ferro
-
-Ele é o Homem-de-ferro
-
-E que ferro, hein?
-
                                               
